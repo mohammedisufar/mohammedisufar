@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Mohammed Isufar  
-- 👀 Red Team Intern @CyberSapines United LLP
+- 👀 Digital Marketing Manager @Dubai, UAE
 - 🌱 Cyber Security Enthusiastic...
-- 📫 Reach me @ www.mohammedisufar.com .
+- 📫 Reach me at www.mohammedisufar.com
